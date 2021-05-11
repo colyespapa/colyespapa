@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @colyespapa
+- 👀 I’m interested in chess
+- 🌱 I’m currently learning chess and javascript
+- 📫 My email is: jlbislas@internet.ru
