@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @colyespapa
-- 👀 I’m interested in chess
-- 🌱 I’m currently learning chess and javascript
-- 📫 My email is: jlbislas@internet.ru
+- 👋 Hi, We're @colyespapa
+- 👀 @colyespapa is Lard Corporation's official account.
+- 🌱 The Lard Corporation website is hosted here.
+- 📫 Our email is: support@lardcorporation.uk.eu.org.
