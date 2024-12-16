@@ -1,4 +1,4 @@
-- 👋 Hi, We're @colyespapa
+- 👋 Hi, I am Lard Lapudding, @colyespapa
 - 👀 @colyespapa is Lard Corporation's official account.
 - 🌱 The Lard Corporation website is hosted here.
-- 📫 Our email is: support@lardcorporation.uk.eu.org.
+- 📫 My email is: jl.lard.2018@gmail.com.
