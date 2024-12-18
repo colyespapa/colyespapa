@@ -1,4 +1,4 @@
-- 👋 Hi, I am Lard Lapudding, @colyespapa
+- 👋 Hi, I am José Luis Benítez, @colyespapa
 - 👀 @colyespapa is Lard Corporation's official account.
 - 🌱 The Lard Corporation website is hosted here.
 - 📫 My email is: jl.lard.2018@gmail.com.
