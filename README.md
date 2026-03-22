@@ -1,5 +1,4 @@
 - 👋 Hi, I am José Luis Benítez, @colyespapa
-- I'm a Mexican student, 15 yo
 - 👀 @colyespapa is Lard Corporation's official account.
 - 🌱 The Lard Corporation website is hosted here.
 - 📫 My email is: jl.lard.2018@gmail.com.
